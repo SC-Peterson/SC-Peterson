@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SC-Peterson
+- 👀 I’m an aspiring game dev!
+- 🌱 I’m currently a senior at SUNY Canton, and hoping to start working soon!
+- 📫 You can reach me through my email - scpgamedev@gmail.com
